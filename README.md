@@ -13,8 +13,7 @@ $\texttt{\color{#6e4841}nonsharing sword selfshipper}$\
 $\texttt{\color{#6e4841} 5/27/'23 ♡}$\
 $\texttt{\color{#6e4841}doubles please don't int}$
 
- 
-
+[prns.cc](https://pronouns.cc/@rocket)
 
 ![](https://files.catbox.moe/08p8ay.png)
 
