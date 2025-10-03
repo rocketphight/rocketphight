@@ -18,6 +18,6 @@ $\texttt{\color{#6e4841}doubles please don't int}$
 
 ![](https://files.catbox.moe/08p8ay.png)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&bar_color=cd3737&bar_color_cover=true&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=novatorem&show_offline=false&background_color=3e2828&interchange=false&bar_color=c70000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 </div>
