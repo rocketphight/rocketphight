@@ -1,1 +1,23 @@
-AHHH
+<div align="center">
+
+![](https://files.catbox.moe/epyn71.png)
+
+$\texttt{\color{#9a2314}rocket}$\
+$\texttt{\color{#9a2314}enby futch　༄　she　/　he}$\
+$\texttt{\color{#9a2314}fictkin}$
+
+![](https://files.catbox.moe/xia9js.png)
+
+  
+$\texttt{\color{#6e4841}nonsharing sword selfshipper}$\
+$\texttt{\color{#6e4841} 5/27/'23 ♡}$\
+$\texttt{\color{#6e4841}doubles please don't int}$
+
+ 
+
+
+![](https://files.catbox.moe/08p8ay.png)
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&bar_color=cd3737&bar_color_cover=true&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+
+</div>
