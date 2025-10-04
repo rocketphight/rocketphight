@@ -11,7 +11,7 @@ $\texttt{\color{#9a2314}fictkin}$
   
 $\texttt{\color{#6e4841}nonsharing sword selfshipper}$\
 $\texttt{\color{#6e4841} 5/27/'23 ♡}$\
-$\texttt{\color{#6e4841}doubles please don't int}$
+$\texttt{\color{#6e4841}doubles iwc}$
 
 [prns.cc](https://pronouns.cc/@rocket)
 
