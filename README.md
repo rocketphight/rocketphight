@@ -13,7 +13,6 @@ $\texttt{\color{#6e4841}nonsharing sword selfshipper}$\
 $\texttt{\color{#6e4841} 5/27/'23 ♡}$\
 $\texttt{\color{#6e4841}doubles iwc}$\
 $\texttt{\color{#6e4841}ROCKET FICTKIN DBLS DNI DNI DNI DNIDNI}$
-$\texttt{\color{#6e4841}also 14 and under dni </3}$
 [prns.cc](https://pronouns.cc/@rocket)
 
 ![](https://files.catbox.moe/08p8ay.png)
