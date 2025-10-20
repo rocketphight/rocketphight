@@ -11,7 +11,7 @@ $\texttt{\color{#9a2314}fictkin}$
   
 $\texttt{\color{#6e4841}nonsharing sword selfshipper}$\
 $\texttt{\color{#6e4841} 5/27/'23 ♡}$\
-[prns.cc](https://pronouns.cc/@rocket)\
+[prns.cc](https://pronouns.cc/@rocket)
 
 ![](https://files.catbox.moe/08p8ay.png)
 
