@@ -11,8 +11,6 @@ $\texttt{\color{#9a2314}fictkin}$
   
 $\texttt{\color{#6e4841}nonsharing sword selfshipper}$\
 $\texttt{\color{#6e4841} 5/27/'23 ♡}$\
-$\texttt{\color{#6e4841}doubles iwc}$\
-$\texttt{\color{#6e4841}ROCKET FICTKIN DBLS DNI DNI DNI DNIDNI}$\
 [prns.cc](https://pronouns.cc/@rocket)\
 [rentry](https://rentry.co/rocketphighting)
 
