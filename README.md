@@ -9,7 +9,7 @@ $\texttt{\color{#9a2314}fictkin}$
 ![](https://files.catbox.moe/xia9js.png)
 
   
-$\texttt{\color{#6e4841}nonsharing sword selfshipper}$\
+$\texttt{\color{#6e4841}mirrorsharing sword selfshipper}$\
 $\texttt{\color{#6e4841} 5/27/'23 ♡}$\
 [prns.cc](https://pronouns.cc/@rocket)
 
